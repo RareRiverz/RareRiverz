@@ -13,6 +13,7 @@
 - *I enjoy referring to our fictkins as 'me'.*
 - *We have a number of undiagnosed illnesses, suspected AuDHD and BPD. Try to be patient.*
 - *Once we get comfortable, we can get annoying really fast. Please let us know if we get too much, we won't be offended.*
+- *Interact if you have the same interests as us!! (Unless you fit the basic DNI criteria)*
 ‎ ‎ 
 
 ‎ ‎ 
@@ -27,7 +28,7 @@
 ‎ ‎ 
 
 ### ``PONYTOWN INFO``
-- *Feel free to come up to us, we won't yell or shoo you away!! If we don't respond, we're most likely AFK or offtab. You can shoot us a whisper (which we might not see) or add our discord (fancase) if you'd REALLY wanna talk.*
+- *Feel free to come up to us, we won't yell or shoo you away!! We might be AFK or offtab, but you can shoot us a whisper (which we might not see) or add our discord (fancase) if you'd wanna talk. ^^*
 - *We love cuddles and boops (TC). Feel free to boop us or sit next to us when we're alone and/or AFK if you'd like. We enjoy the company.*
 ‎ ‎ 
 
