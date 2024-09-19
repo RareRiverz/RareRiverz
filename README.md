@@ -28,7 +28,7 @@
 ‎ ‎ 
 
 ### ``PONYTOWN INFO``
-- *Feel free to come up to us, we won't yell or shoo you away!! We might be AFK or offtab, but you can shoot us a whisper (which we might not see) or add our discord (fancase) if you'd wanna talk. ^^*
+- *Feel free to come up to us, we won't yell or shoo you away!! We might be AFK or offtab, but you can shoot us a whisper (which we might not see) or add our discord (crazykittycat123) if you'd wanna talk. ^^*
 - *We love cuddles and boops. Feel free to boop us or sit next to us when we're alone and/or AFK if you'd like. We enjoy the company.*
 ‎ ‎ 
 
